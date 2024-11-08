@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Faded Mind
+- 👀 I’m interested in ... things to "help me" in school
+- 📫 How to reach me ... email me at fadedmind863@outlook.com
+- 😄 Pronouns: ... He/They
